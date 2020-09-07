@@ -1,2 +1,16 @@
 # CONNIE-S-DIARY-
 PHOTOGRAPHS
+![Brahmaputra, Gauhati (Guwahati)](https://user-images.githubusercontent.com/64543569/92408763-1c29ad00-f15c-11ea-806a-29ee2b766e01.jpeg)
+![Couple, (Tamlu)](https://user-images.githubusercontent.com/64543569/92408789-2c418c80-f15c-11ea-9635-88ccafc587fa.jpeg)
+![DC Bungalow](https://user-images.githubusercontent.com/64543569/92408819-39f71200-f15c-11ea-964d-dbd6d41e3911.jpeg)
+![Display of dancing, Henema](https://user-images.githubusercontent.com/64543569/92408831-45e2d400-f15c-11ea-824a-5e76f6e6e6e4.jpeg)
+![Festival in Kohima, December 1900](https://user-images.githubusercontent.com/64543569/92408855-52ffc300-f15c-11ea-80fd-a0f984679fae.jpeg)
+![Khonoma club (Hiekhakike)](https://user-images.githubusercontent.com/64543569/92408865-60b54880-f15c-11ea-8ce8-5a0f18f45733.jpeg)
+![Kohima village 1900](https://user-images.githubusercontent.com/64543569/92408887-6e6ace00-f15c-11ea-9473-136e2a4094b0.jpeg)
+![Morung, Kekrima (Kikruma)](https://user-images.githubusercontent.com/64543569/92408902-7dea1700-f15c-11ea-84ba-2d0d26254507.jpeg)
+![Morungs at Nankam (Longkhum)](https://user-images.githubusercontent.com/64543569/92408920-8f332380-f15c-11ea-8026-6d953dba3c38.jpeg)
+![Morungs, Kekrima (Kikruma)](https://user-images.githubusercontent.com/64543569/92408929-96f2c800-f15c-11ea-821b-184f7fd39499.jpeg)
+![Morungs, Nankam (Longkhum)](https://user-images.githubusercontent.com/64543569/92408947-a540e400-f15c-11ea-999a-ccbac8e29a19.jpeg)
+![Ruins of Cachari fort](https://user-images.githubusercontent.com/64543569/92408963-b25dd300-f15c-11ea-9349-589931849100.jpeg)
+![Statue at Cachari fort](https://user-images.githubusercontent.com/64543569/92408985-c43f7600-f15c-11ea-8cda-fb076525792a.jpeg)
+![Tamlu](https://user-images.githubusercontent.com/64543569/92409009-d3bebf00-f15c-11ea-97ea-8b6f3a19f98f.jpeg)
